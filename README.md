@@ -1,0 +1,2 @@
+# 6thSemExamNotes
+BCT OLD COURSE EXAM NOTES
